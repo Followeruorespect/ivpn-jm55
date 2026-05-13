@@ -1,4 +1,4 @@
-
+Enhance your IVPN experience with professional IVPN Extension | split-tunneling + dedicated-IP, the #1 extension. Includes split-tunneling and dedicated-IP for a safer and more
 
 
 
